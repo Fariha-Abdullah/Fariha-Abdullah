@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Fariha.
 
 - 🌱 I’m currently studying at Brac University.
-- 📫 How to reach me: fariha.abd7@gmail.com
+- 📫 Reach me at- fariha.abd7@gmail.com
 
 
 <!---
